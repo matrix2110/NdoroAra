@@ -1,2 +1,6 @@
 # NdoroAra
-HAYOLO
+Buat Ndoro Ara
+
+KAMU PREFER NGAPAK / INDO?
+
+Jujur :)
